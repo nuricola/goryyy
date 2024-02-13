@@ -1,0 +1,2 @@
+# goryyy
+for friend
